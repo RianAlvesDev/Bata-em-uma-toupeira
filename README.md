@@ -1,0 +1,1 @@
+Este jogo tornou-se famoso muito antes do advento dos computadores. Isso é muito mais fácil e ainda mais interessante. Tenha tempo para acertá-los antes que eles se escondam novamente, mas cuidado com espinhos e outros objetos que também podem sair dos buracos.
